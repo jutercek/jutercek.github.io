@@ -1,2 +1,0 @@
-# jutercek.github.io
- 
